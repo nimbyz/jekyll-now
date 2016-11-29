@@ -9,6 +9,6 @@ This site was created to provide runners with detailed information on Missouri's
 
 ### Contact me
 
-If you are interested in submitting trail information to be featured on this site, or if you'd like to request information on a trail, please contact me at the email below.
+If you have any questions about the content on this site, please contact me at the email below.
 
-[email@domain.com](mailto:email@domain.com)
+[johnnie.stevens@gmail.com](mailto:johnnie.stevens@gmail.com)
